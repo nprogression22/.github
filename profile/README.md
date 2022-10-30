@@ -13,16 +13,6 @@ With over two decades of experience in solutions from Dynamics NAV, AX to Dynami
 * Support existing ERP
 
 &nbsp;
-&nbsp;
 
-##### Leave the request for a personal consultation or ask questions by reaching out to us:
+#### Leave the request for a personal consultation or ask questions by reaching out to us:
 [![Facebook](https://static.tildacdn.com/tild6237-3031-4433-a237-613234363166/facebook.svg)](https://www.facebook.com/nprogression/) &nbsp; [![LinkedIn](https://static.tildacdn.com/tild3633-3037-4938-b237-303833323531/linkedin.svg)](https://www.linkedin.com/company/n-progression)
-
-**Serbia, Novi Sad** 
-Novosadskog sajma no. 4a
-
-**United Kingdom, London** 
-1 Kilmarsh Road, London, England W6 0PL
-
-**Germany, Munich** 
-Grafinger str. 31 81671
